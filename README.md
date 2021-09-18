@@ -8,3 +8,5 @@ Website name - Antheia Plants
 
 URL of the hosted site: http://miracle2204cmsfree.ml/
 -----------------------------------------------------------------------------------
+a. https://profreehost.com/ : Free hosting
+b. http://www.freenom.com/en/index.html : Free Domain
